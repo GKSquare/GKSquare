@@ -1,4 +1,6 @@
-## Hi there 👋
+## AI World with Indian Style🙏
+## I am not a professional but
+I learn quickly
 
 <!--
 **GKSquare/GKSquare** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
